@@ -1,2 +1,2 @@
 # nima
-[MASSAGE ME](wa.me/94715166712)
+[MASSAGE ME](http:wa.me/94715166712)
